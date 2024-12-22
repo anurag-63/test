@@ -6,7 +6,7 @@ test is going on
 in lab at the college
 ddm,md,,,,,,,,,,,,,,,,sanc,mŚ<# test
 test is going on
-in lab at the college
+in lab at the colledghdge
 ddm,md,,,,,,,,,,,,,,,,sanc,mŚ<# test
 test is going on
 in lab at the college
